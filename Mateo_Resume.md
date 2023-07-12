@@ -49,7 +49,7 @@ Entertainment Marketing Intern
 __Music for All__, Indianapolis, IN
 Marketing Intern
 
-• Implemented social media strategies which increased engagement by more than +1300% and followers by 39% reaching 30K by incorporating innovative AR filters, 3D animations, and multimedia content
+• Increased engagement by more than +1300% and followers by 39% reaching 30K by incorporating innovative AR filters, 3D animations, and multimedia content
 • Coordinated analytic operations and communication with governors and senators of different states which contributed to 51K on sales and obtained greeting letters from them to be included in the annual book edition
 • Developed email marketing campaigns and promotion graphics that increased website traffic by more than 31% and contributed to $5M+ in revenue in Fall 2021
 
